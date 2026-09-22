@@ -20,8 +20,8 @@
 
 ­
 
-<p align="left">
-  <img src="https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif" alt="Black Shine Banner" width="100%" style="height: 190px; object-fit: cover;" />
+<p align="center">
+  <img src="https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif" alt="Black Shine Banner" width="80%" style="height: 180px; object-fit: cover;" />
 </p>
 
 <p align="center">
