@@ -2,6 +2,7 @@
 
 20𝑦 | 𝙼𝚞𝚕𝚝𝚒𝚏𝚊𝚗𝚍𝚘𝚖 | 𝚊𝚛𝚝 | 𝚊𝚗𝚒𝚖𝚎 𝚊𝚗𝚍 𝚐𝚊𝚖𝚎𝚜
 
+
 ­
 ᴍᴀɪɴ ғᴀɴᴅᴏᴍs
 
@@ -11,7 +12,6 @@
 
 𝐾𝑛𝑦 - 𝑂𝑏𝑎𝑛𝑎𝑖
 
-𝐵𝑛ℎ𝑎 - 𝐾𝑖𝑟𝑖𝑠ℎ𝑖𝑚𝑎
 
 ![Black Shine](https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif)
 
