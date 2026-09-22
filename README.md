@@ -1,10 +1,13 @@
 ## ゛➤ Ｐｒｏｆｉｌｅ
 
 20𝑌𝑆
+
 𝙼𝚞𝚕𝚝𝚒𝚏𝚊𝚗𝚍𝚘𝚖
 
 ᴍᴀɪɴ ғᴀɴᴅᴏᴍs
+
 𝐺𝑎𝑐ℎ𝑖𝑎𝑘𝑢𝑡𝑎
+
 𝐹𝑖𝑛𝑎𝑙 𝑓𝑎𝑛𝑡𝑎𝑠𝑦 𝑉𝐼𝐼
 
 ![Black Shine](https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif)
