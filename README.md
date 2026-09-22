@@ -12,7 +12,7 @@
 𝐾𝑛𝑦 - 𝑂𝑏𝑎𝑛𝑎𝑖
 
 
-<img src="https://www.deviantart.com/coredrift/art/Rudo-Surebrec---Gachiakuta-PNG-V3-%283%29-1336306076">
+
 <p align="left">
   <img src="https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif" alt="Black Shine Banner" width="70%" style="height: 160px; object-fit: cover;" />
 </p>
