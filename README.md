@@ -18,7 +18,7 @@
 </p>
 
 <p align="center">
-  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b50be682-2063-40e7-8fea-612e88c66c4c/dm3lod8-fc6939c3-cd97-4924-9f13-220d3715d1b1.png" alt="Rudo Surebrec - Gachiakuta" width="220" />
+  <img src="https://pin.it/38jcP8Pnr" alt="Rudo Surebrec - Gachiakuta" width="220" />
 </p>
 
 
