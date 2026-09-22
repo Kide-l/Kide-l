@@ -4,13 +4,13 @@
 
 ­<img src="https://lh3.googleusercontent.com/d/1OQ8-fal0yzqlhNP1nYa5ClWMK5BVb4ZL" align="right" width="180" alt="Rudo" />
 
-### MAIN FANDOMS
+### ᴍᴀɪɴ ғᴀɴᴅᴏᴍs
 
-*Gachiakuta - Rudo*
+𝐺𝑎𝑐ℎ𝑖𝑎𝑘𝑢𝑡𝑎 - 𝑅𝑢𝑑𝑜
 
-*Final fantasy VII - Cloud*
+𝐹𝑖𝑛𝑎𝑙 𝑓𝑎𝑛𝑡𝑎𝑠𝑦 𝑉𝐼𝐼 - 𝐶𝑙𝑜𝑢𝑑 
 
-*Kny - Obanai*
+𝐾𝑛𝑦 - 𝑂𝑏𝑎𝑛𝑎𝑖
 
 <br clear="right" />
 
