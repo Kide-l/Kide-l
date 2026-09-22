@@ -1,5 +1,9 @@
 ## ゛➤ Ｐｒｏｆｉｌｅ
 
+<p align="center">
+  <img src="https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif" alt="Black Shine Banner" width="100%" style="height: 120px; object-fit: cover;" />
+</p>
+
 𝟸𝟶𝑦 | 𝙼𝚞𝚕𝚝𝚒𝚏𝚊𝚗𝚍𝚘𝚖 | 𝙰𝚛𝚝
 
 ­
@@ -11,10 +15,6 @@
 𝐹𝑖𝑛𝑎𝑙 𝑓𝑎𝑛𝑡𝑎𝑠𝑦 𝑉𝐼𝐼 - 𝐶𝑙𝑜𝑢𝑑
 
 𝐾𝑛𝑦 - 𝑂𝑏𝑎𝑛𝑎𝑖
-
-<p align="center">
-  <img src="https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif" alt="Black Shine Banner" width="100%" style="height: 90px; object-fit: cover;" />
-</p>
 
 
 <p align="center">
