@@ -1,9 +1,6 @@
 ## ゛➤ Ｐｒｏｆｉｌｅ
 ![Black Shine](https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif)
 
-<p align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=B19CD9&center=true&vCenter=true&width=500&lines=multifandom+%7C+anime+%7C+videojuegos;la+luna+%F0%9F%8C%98" alt="Typing SVG" />
-</p>
 
 ─────────────────────────────────────────────────────────────────────────────────────
 ![HTML5](https://img.shields.io/badge/HTML5-E34F26?style=for-the-badge&logo=html5&logoColor=white)
