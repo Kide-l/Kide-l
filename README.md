@@ -18,19 +18,6 @@
 <br clear="right" />
 
 
-ᴍᴀɪɴ ғᴀɴᴅᴏᴍs
-
-𝐺𝑎𝑐ℎ𝑖𝑎𝑘𝑢𝑡𝑎 - 𝑅𝑢𝑑𝑜
-
-𝐹𝑖𝑛𝑎𝑙 𝑓𝑎𝑛𝑡𝑎𝑠𝑦 𝑉𝐼𝐼 - 𝐶𝑙𝑜𝑢𝑑 
-
-𝐾𝑛𝑦 - 𝑂𝑏𝑎𝑛𝑎𝑖
-
-<p align="Center">
-  <img src="https://lh3.googleusercontent.com/d/1OQ8-fal0yzqlhNP1nYa5ClWMK5BVb4ZL" alt="Rudo PNG" width="220" />
-</p>
-
-
 <p align="left">
   <img src="https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif" alt="Black Shine Banner" width="70%" style="height: 160px; object-fit: cover;" />
 </p>
