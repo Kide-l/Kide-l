@@ -21,7 +21,7 @@
 ­
 
 <p align="center">
-  <img src="https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif" alt="Black Shine Banner" width="95%" style="height: 180px; object-fit: cover;" />
+  <img src="https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif" alt="Black Shine Banner" width="97%" style="height: 170px; object-fit: cover;" />
 </p>
 
 <p align="center">
