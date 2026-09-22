@@ -14,7 +14,7 @@
 
 <br clear="right" />
 
-<p align="center">
+<p align="left">
   <img src="https://lh3.googleusercontent.com/d/13y4xFDZu5_8uVkuKBhxTNWUD18AQJkz_" alt="Rudo Render" width="220" />
 </p>
 
