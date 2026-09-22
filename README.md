@@ -1,4 +1,8 @@
-## ゛➤ Ｐｒｏｆｉｌｅ
+## ゛➤ Ｐｒｏｆｉｌｅ 
+<p align="center">
+  <img src="/storage/emulated/0/Pictures/3r.png" alt="Mi PNG local" width="50" />
+</p>
+
 
 
 𝟸𝟶𝑦 | 𝙼𝚞𝚕𝚝𝚒𝚏𝚊𝚗𝚍𝚘𝚖 | 𝙰𝚛𝚝
