@@ -2,7 +2,7 @@
 
 20y | Multifandom | Art
 
-­<img src="https://lh3.googleusercontent.com/d/1OQ8-fal0yzqlhNP1nYa5ClWMK5BVb4ZL" align="right" width="180" alt="Rudo" />
+­<img src="https://lh3.googleusercontent.com/d/1OQ8-fal0yzqlhNP1nYa5ClWMK5BVb4ZL" align="right" width="200" alt="Rudo" />
 
 ### ᴍᴀɪɴ ғᴀɴᴅᴏᴍs
 
@@ -28,7 +28,7 @@
 
 ­
 <p align="center">
-  <img src="https://lh3.googleusercontent.com/d/1t-o14JFuferrheSuPSJp0GdmM3opPDTH" alt="Imagen" width="310" />
+  <img src="https://lh3.googleusercontent.com/d/1t-o14JFuferrheSuPSJp0GdmM3opPDTH" alt="Imagen" width="340" />
 </p>
 
 
