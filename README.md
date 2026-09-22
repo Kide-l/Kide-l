@@ -12,8 +12,10 @@
 
 𝐾𝑛𝑦 - 𝑂𝑏𝑎𝑛𝑎𝑖
 
+<p align="center">
+  <img src="https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif" alt="Black Shine Banner" width="100%" style="height: 60px; object-fit: cover;" />
+</p>
 
-![Black Shine](https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif)
 
 <p align="center">
   <img src="https://media1.giphy.com/media/v1.Y2lkPTZjMDliOTUyZGp6aXhmbGRuaHZqNDBuNTNldWJ6N3Y3dmRjYjU5OWdzdnpsM3VudyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Kjn6jc9GhYJf4t90LB/giphy.gif" alt="GIF animado" width="300" />
