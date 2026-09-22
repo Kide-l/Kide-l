@@ -17,6 +17,10 @@
   <img src="https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif" alt="Black Shine Banner" width="70%" style="height: 160px; object-fit: cover;" />
 </p>
 
+<p align="center">
+  <img src="https://lh3.googleusercontent.com/d/1OQ8-fal0yzqlhNP1nYa5ClWMK5BVb4ZL" alt="Rudo PNG" width="220" />
+</p>
+
 
 ───────────────────────────────────────────────────────────
 
