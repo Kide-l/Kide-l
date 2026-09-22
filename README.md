@@ -1,6 +1,11 @@
 ## ゛➤ Ｐｒｏｆｉｌｅ
 ![Black Shine](https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif)
 
+<h1 align="center">Kide</h1>
+
+<p align="center">
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=22&pause=1000&color=36BCF7&center=true&vCenter=true&width=435&lines=Desarrollador+Full+Stack;Amante+del+c%C3%B3digo+limpio;Aprendiendo+algo+nuevo+cada+d%C3%ADa" alt="Typing SVG" />
+</p>
 
 ─────────────────────────────────────────────────────────────────────────────────────
 ![HTML5](https://img.shields.io/badge/HTML5-E34F26?style=for-the-badge&logo=html5&logoColor=white)
