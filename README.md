@@ -29,7 +29,7 @@
 </p>
 ­
 <p align="center">
-  <img src="https://lh3.googleusercontent.com/d/1t-o14JFuferrheSuPSJp0GdmM3opPDTH" alt="Imagen" width="340" />
+  <img src="https://lh3.googleusercontent.com/d/1t-o14JFuferrheSuPSJp0GdmM3opPDTH" alt="Imagen" width="370" />
 </p>
 
 
