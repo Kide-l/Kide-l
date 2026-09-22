@@ -1,6 +1,9 @@
 ## ゛➤ Ｐｒｏｆｉｌｅ
 ![Black Shine](https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif)
 
+<p align="center">
+  <img src="https://media.giphy.com/media/l0MYt5jPR6QX5pnqM/giphy.gif" width="300">
+</p>
 
 
 ─────────────────────────────────────────────────────────────────────────────────────
