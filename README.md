@@ -1,6 +1,6 @@
 ## ゛➤ Ｐｒｏｆｉｌｅ 
 <p align="center">
-  <img src="/storage/emulated/0/Pictures/3r.png" alt="Mi PNG local" width="50" />
+  <img src="/storage/emulated/0/Pictures/3r.png" alt="3r" width="50" />
 </p>
 
 
