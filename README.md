@@ -21,8 +21,9 @@
 ­
 
 <p align="center">
-  <img src="https://lh3.googleusercontent.com/d/14dR4dipEpxVgG__EhS60-py-E8VcPsUc" alt="Imagen" width="220" />
+  <img src="https://lh3.googleusercontent.com/d/1t-o14JFuferrheSuPSJp0GdmM3opPDTH" alt="Imagen" width="220" />
 </p>
+
 
 
 ­
