@@ -7,12 +7,13 @@
 
 𝐺𝑎𝑐ℎ𝑖𝑎𝑘𝑢𝑡𝑎 - 𝑅𝑢𝑑𝑜
 
-𝐹𝑖𝑛𝑎𝑙 𝑓𝑎𝑛𝑡𝑎𝑠𝑦 𝑉𝐼𝐼 - 𝐶𝑙𝑜𝑢𝑑 <p align="right">
-  <img src="https://lh3.googleusercontent.com/d/1OQ8-fal0yzqlhNP1nYa5ClWMK5BVb4ZL" alt="Rudo PNG" width="220" />
-</p>
+𝐹𝑖𝑛𝑎𝑙 𝑓𝑎𝑛𝑡𝑎𝑠𝑦 𝑉𝐼𝐼 - 𝐶𝑙𝑜𝑢𝑑 
 
 𝐾𝑛𝑦 - 𝑂𝑏𝑎𝑛𝑎𝑖
 
+<p align="Center">
+  <img src="https://lh3.googleusercontent.com/d/1OQ8-fal0yzqlhNP1nYa5ClWMK5BVb4ZL" alt="Rudo PNG" width="220" />
+</p>
 
 
 <p align="left">
