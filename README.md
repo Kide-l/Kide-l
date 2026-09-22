@@ -14,7 +14,7 @@
 𝐾𝑛𝑦 - 𝑂𝑏𝑎𝑛𝑎𝑖
 
 <p align="center">
-  <img src="https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif" alt="Black Shine Banner" width="100%" style="height: 140px; object-fit: cover;" />
+  <img src="https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif" alt="Black Shine Banner" width="90%" style="height: 140px; object-fit: cover;" />
 </p>
 
 <p align="center">
