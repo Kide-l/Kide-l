@@ -1,7 +1,7 @@
 ## ゛➤ Ｐｒｏｆｉｌｅ
 
 <p align="center">
-  <img src="https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif" alt="Black Shine Banner" width="100%" style="height: 120px; object-fit: cover;" />
+  <img src="https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif" alt="Black Shine Banner" width="100%" style="height: 140px; object-fit: cover;" />
 </p>
 
 𝟸𝟶𝑦 | 𝙼𝚞𝚕𝚝𝚒𝚏𝚊𝚗𝚍𝚘𝚖 | 𝙰𝚛𝚝
