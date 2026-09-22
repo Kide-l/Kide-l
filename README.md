@@ -26,6 +26,7 @@
 
 <p align="center">
   𝗗𝗡𝗜 
+  
 toxic • strange/inappropriate behavior (NSFW) • gore • minors
 </p>
 
