@@ -1,12 +1,6 @@
 ## ゛➤ Ｐｒｏｆｉｌｅ
 ![Black Shine](https://media1.tenor.com/m/LUWWVR74B_kAAAAC/black-shine.gif)
 
-<!--START_SECTION:activity-->
-<!--END_SECTION:activity-->
-
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=TU_USUARIO&label=Visitas+al+perfil&color=blueviolet&style=flat" />
-</p>
 
 ─────────────────────────────────────────────────────────────────────────────────────
 ![HTML5](https://img.shields.io/badge/HTML5-E34F26?style=for-the-badge&logo=html5&logoColor=white)
