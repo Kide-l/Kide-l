@@ -1,6 +1,3 @@
-## ゛➤ Ｐｒｏｆｉｌｅ 
-𝟸𝟶𝑦 | 𝙼𝚞𝚕𝚝𝚒𝚏𝚊𝚗𝚍𝚘𝚖 | 𝙰𝚛𝚝
-
 ­<img src="https://lh3.googleusercontent.com/d/1OQ8-fal0yzqlhNP1nYa5ClWMK5BVb4ZL" align="right" width="180" alt="Rudo" />
 
 # ➤ P r o f i l e
