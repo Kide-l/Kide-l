@@ -1,4 +1,4 @@
-# ➤ P r o f i l e  𑄝
+# ➤ P r o f i l e  
 
 20y | Multifandom | Art
 
