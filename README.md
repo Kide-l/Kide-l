@@ -28,7 +28,7 @@
 <p align="center">
   𝗗𝗡𝗜 
 <p align="center">
-toxic • strange/inappropriate behavior (NSFW) • gore • minors
+toxic • strange/inappropriate behavior (NSFW) • gore • minors • alcohol/drug issues • No flirting, I have a girlfriend
 
 
 
