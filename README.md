@@ -31,7 +31,7 @@
 toxic • strange/inappropriate behavior (NSFW) • gore • minors • alcohol/drug topics
 
 <p align="center">
- No flirting, I have a gf
+ 
 
 
 
