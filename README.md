@@ -28,7 +28,7 @@
 <p align="center">
   𝗗𝗡𝗜 
 <p align="center">
-toxic • strange/inappropriate behavior (NSFW) • gore • minors • alcohol/drug topics
+toxic • strange/inappropriate behavior or (NSFW) • gore • minors • alcohol/drug topics
 
 <p align="center">
  
